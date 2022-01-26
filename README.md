@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Vhe
 - 👀 I’m interested in a lot of stuff
-- 🌱 I’m currently learning that
+- 🌱 I’m currently learning by doing
 - 💞️ 
 - 📫 People who needs to reach me, will know where to get me
